@@ -1,1 +1,0 @@
-# R_Kornyukhov_Dmitriy
